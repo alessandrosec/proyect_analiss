@@ -1,2 +1,2 @@
-# proyecto_analisis
-proyecto final de análisis de sistemas II 2025 UMG
+# Ejecicio/Prueba
+idk, no sean shutes xd
